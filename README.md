@@ -1,1 +1,1 @@
-
+Dokumentáció: BRSZT-HF.docx
